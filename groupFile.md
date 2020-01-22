@@ -1,3 +1,3 @@
-Augmented\n
-Jekko Syquia\n
+Augmented  
+Jekko Syquia  
 Oscar Becerra
